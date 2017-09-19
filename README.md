@@ -1,2 +1,3 @@
 # Drifting-Line
-hello!
+The current Mediterranean migratory crisis is causing a large number of deaths at sea: in 2016 more than 5,000 people died trying to reach Europe on board of overcrowded clandestine boats.
+The relief panorama has distinct features and connotations: together with government and military naval units, a large number of NGOs has taken the field. International humanitarian treaties on refugees and asylum seekers are very clear and demand that the needs of human beings belonging from countries of war and persecution must be supported in the name of solidarity and common sense of brotherhood. It is time for the Union countries to align with these needs and seek stable and substantial solutions. Meanwhile, this emergency situation requires for the provision of search and rescue measures to avoid the deaths of a large number of desperate and troubled people. The project fits within this area as a concrete support to the existing reliefs network.
